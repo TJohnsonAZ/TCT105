@@ -1,0 +1,1 @@
+Do therapists get therapists? A therapist therapist? Then is there a therapist therapist therapist? What about a therapist therapist therapist therapist? It keeps going. What happens to the last therapist? They get therapy from the first person in the chain, it’s just a big circle with all the therapists on Earth. I call it, the Therapist Circle Theory.
