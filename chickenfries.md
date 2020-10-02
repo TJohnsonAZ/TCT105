@@ -1,0 +1,1 @@
+New crispy pretzel chicken fries at Burger King! Crispy crunchy pretzel outside, tender juicy white meat chicken inside! New crispy pretzel chicken fries! Or try original chicken fries, only at Burger King!
