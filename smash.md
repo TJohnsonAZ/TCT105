@@ -1,1 +1,0 @@
-Nintendo, this is where I officially can no longer stand for you. Adding in Steve from Minecraft; a game with a racist, sexist, transphobic developer to Smash? Unacceptable. I have destroyed my copy and demand a refund, or else I will take action.
